@@ -47,4 +47,3 @@ Author
 RIZWAN KHAN
 📧 Email: your.rizwankhannasar125@gmail.com
 
-📞 Phone: +92 336 0822124
